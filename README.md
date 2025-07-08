@@ -11,6 +11,3 @@ Pre-final year B.Tech student in CSE (AI & ML) at LNCT (Class of 2026)
 🔗 Connect with me:  Github: https://github.com/Deepanshipatil)
                       LinkedIn : https://www.linkedin.com/indeepanshi-patil//
                       Email :dipanshipatil0468@gmail.com ]
-Deepanshipatil/Deepanshipatil is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
