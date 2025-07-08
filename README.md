@@ -1,4 +1,4 @@
-Pre-final year B.Tech student in CSE (AI & ML) at LNCT (Class of 2026)
+Final year B.Tech student in CSE (AI & ML) at LNCT (Class of 2026)
 
 💻 Passionate about Artificial Intelligence, Machine Learning, and Software Development
 
