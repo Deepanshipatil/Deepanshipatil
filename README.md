@@ -8,6 +8,4 @@ Final year B.Tech student in CSE (AI & ML) at LNCT (2026)
 
 🤝 Open to collaboration and learning opportunities
 
-🔗 Connect with me:  Github: https://github.com/Deepanshipatil)
-                      LinkedIn : https://www.linkedin.com/indeepanshi-patil//
-                      Email :dipanshipatil0468@gmail.com ]
+
